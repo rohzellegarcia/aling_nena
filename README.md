@@ -41,4 +41,3 @@ The previous developer was her daughter, who has built some functionality into t
 
 **Grading Criteria**
 + TBA
-https://24.media.tumblr.com/0bd53ad1a4ee0c2c202d132a0527fbbe/tumblr_n5cu1ztRXz1qb81c6o1_1280.jpg
